@@ -5,6 +5,6 @@ c+H AND INT ALWAYS EVEN IF NOT STATED IN NAME !!!!!
 
 No boundaries other than not wanting tcc likers to int !
 
-![](https://komarev.com/ghpvc/?username=your-throatshot&color=FE9EC7&-username&label=ammos&style=plastic)
+![](https://komarev.com/ghpvc/?username=your-throatshot&color=FE9EC7&-username&label=bullets&style=plastic)
 
 https://guntomyribs.atabook.org/ 
