@@ -1,7 +1,9 @@
 any1 can int . wip wip wip rentry in wip eveyhignis in wo=pp 
 
-Short intro : Vlad/Richard, Cis male, I like pink stuff, 16, and I love cuddles !
+Short intro : Vlad/Richard, Cis male, I like pink stuff, 16, and I love hugs+cuddles !
+c+H AND INT ALWAYS EVEN IF NOT STATED IN NAME !!!!! 
 
-I get attached and jealous easil y !!!! I discourage getting really close to me or encouraging my behaviour 
+I don't have boundaries! ||just dni tcc||
+
 
 https://guntomyribs.atabook.org/ 
