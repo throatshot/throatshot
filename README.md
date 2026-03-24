@@ -6,6 +6,8 @@ c+H AND INT ALWAYS EVEN IF NOT STATED IN NAME !!!!!
 
 I lik to socialize a lot
 
+[matching rentry](https://rentry.co/pocketguns)
+
 ![](https://komarev.com/ghpvc/?username=your-throatshot&color=FE9EC7&-username&label=bullets&style=plastic)
 
 https://guntomyribs.atabook.org/ 
