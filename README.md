@@ -4,7 +4,7 @@ Short intro : Vlad/Richard, Cis male, I like pink stuff, 16, and I love hugs+cud
 c+H AND INT ALWAYS EVEN IF NOT STATED IN NAME !!!!! 
 
 
-I lik to socialize a lot
+I lik to socialize a lot , hearts coming out of m head = super happy
 
 [matching rentry](https://rentry.co/pocketguns) , [I do rentries!](https://rentry.co/rentriesplspls)
 
