@@ -6,7 +6,7 @@ c+H AND INT ALWAYS EVEN IF NOT STATED IN NAME !!!!!
 
 I lik to socialize a lot , hearts coming out of m head = super happy
 
-[matching rentry](https://rentry.co/pocketguns) , [I do rentries!](https://rentry.co/rentriesplspls)
+[matching rentry](https://rentry.co/pocketguns) , 
 
 ![](https://komarev.com/ghpvc/?username=your-throatshot&color=FE9EC7&-username&label=bullets&style=plastic)
 
