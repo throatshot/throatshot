@@ -14,6 +14,8 @@ IT'S HARD FOR ME TO BE AWARE of people's feelings or if I am interacting with "b
 I LO VE MY MUTULAS. !!!!!!!!!!!!!!!!!!!!!!!
 VIVI, JAE, ABYSS, JAMES, RU, MILES, NATH, RIN, LUCI, EDDIE, IVY, MEL, FRANKIE, RAY, ANTEK, WREN, RIRI, MIKA, MIT C, TOL, ASH, SEBS !!!
 
+<img src="https://i.ibb.co/Xr5Sf83K/Screenshot-20260402-014950-Discord.jpg" alt="Description of image" width="100"/>
+
 [matching rentry](https://rentry.co/pocketguns) , 
 
 ![](https://komarev.com/ghpvc/?username=your-throatshot&color=FE9EC7&-username&label=bullets&style=plastic)
