@@ -1,23 +1,9 @@
-any1 can int . wip wip wip rentry in wip eveyhignis in wo=pp 
-
-Short intro : Vlad/Richard, Cis male, I like pink stuff, 16, and I love hugs+cuddles !
-
-c+H AND INT ALWAYS EVEN IF NOT STATED IN NAME !!!!! 
+![](https://media3.giphy.com/media/v1.Y2lkPTc5MGI3NjExcXcwNm1sanZrMmVrNmI0NWJsZ3FpZ3RwZXJwank5Z2Ezb3kwdTVxdCZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9Zw/oFSgxEUy3G3JzKvMFq/giphy.gif)
 
 
-I lik to socialize a lot , hearts coming out of m head = super happy
-
-IT'S HARD FOR ME TO BE AWARE of people's feelings or if I am interacting with "bad" peoppl!! Please communicate with me abt it and speak :(
-
-( I DON;T CHECK STRWAPAGES OR ANY INTRODUCTION PAGES AT SLL!! NOothing tbh unless u r my close friend)
-
-I LO VE MY MUTULAS. !!!!!!!!!!!!!!!!!!!!!!!
-VIVI, JAE, ABYSS, JAMES, RU, MILES, NATH, RIN, LUCI, EDDIE, IVY, MEL, FRANKIE, RAY, ANTEK, WREN, RIRI, MIKA, MIT C, TOL, ASH, SEBS !!!
-
-<img src="https://i.ibb.co/Xr5Sf83K/Screenshot-20260402-014950-Discord.jpg" alt="Description of image" width="100"/>
-
+$${\color{red}Welcome \space .}$$ github still a wip
 [matching rentry](https://rentry.co/pocketguns) , 
 
-![](https://komarev.com/ghpvc/?username=your-throatshot&color=FE9EC7&-username&label=bullets&style=plastic)
+![](https://komarev.com/ghpvc/?username=your-throatshot&color=6970F2&-username&label=bullets&style=plastic)
 
 https://guntomyribs.atabook.org/ 
