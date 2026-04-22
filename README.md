@@ -1,5 +1,4 @@
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![](https://files.catbox.moe/b98oee.png)
-
+![](https://files.catbox.moe/b98oee.png)
 
 
 ![](https://file.garden/aXu9FpkcPAJchg9c/Pixels/BW/IMG-5817.gif) github still a wip
@@ -15,4 +14,3 @@ pre 52 jason isme
 
 [sign ata](https://guntomyribs.atabook.org/)
 
-![](https://64.media.tumblr.com/862762636964f050df9e1e16d8ff358a/a13fede0cf471ace-15/s640x960/7aa8550a87ac1443dc4f4c02ef81f3f747941dbf.gifv)
