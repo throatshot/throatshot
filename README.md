@@ -1,8 +1,8 @@
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![](https://files.catbox.moe/xxxmg3.webp)
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![](https://files.catbox.moe/b98oee.png)
 
 
 
-![](https://file.garden/aXu9FpkcPAJchg9c/Pixels/BW/IMG-5817.gif) $${\color{red}Welcome \space .}$$ github still a wip
+![](https://file.garden/aXu9FpkcPAJchg9c/Pixels/BW/IMG-5817.gif) github still a wip
 [matching rentry](https://rentry.co/pocketguns) , wipwip rmeember this is a wip omfg
 
 C+H always, be free to w2int, int, or anything to do w socializing atp . any1 can int
