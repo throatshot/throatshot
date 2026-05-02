@@ -9,7 +9,7 @@ I go by kyle/9/jason, cis male, bi w male preference, I like pink, and I'm jason
 
 
 
-![](https://komarev.com/ghpvc/?username=your-throatshot&color=6970F2&-username&label=bullets&style=plastic)
+![](https://komarev.com/ghpvc/?username=your-throatshot&color=6970F2&-username&label=bullets&style=plastic)      [Doc of friends and me pls read](https://docs.google.com/document/d/1ONghb0lA0k1UW7KF8_Uh5zXgBvf80RJAuW4JKmpJR2E/edit?tab=t.0)
 
 [sign ata](https://guntomyribs.atabook.org/)
 
