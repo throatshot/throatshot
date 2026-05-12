@@ -6,6 +6,7 @@
 C+H always, be free to w2int, int, or anything to do w socializing atp . any1 can int
 
 he . any . goat . pup
+
 I go by kyle/9/jason, cis male, bi w male preference, I like pink, and I'm jason tod.d ok?
 
 
