@@ -6,3 +6,5 @@
 
 github wip !
 
+Semi-verbal in public !! 
+
