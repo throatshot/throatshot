@@ -1,5 +1,5 @@
 
-![](https://komarev.com/ghpvc/?username=your-github-throatshot&color=FA6781&label=BULLETS+LEFT&style=flat-square)
+![](https://komarev.com/ghpvc/?username=your-github-throatshot&color=FA6781&label=BULLETS+LEFT&style=flat-square)  (I ACCIDENTALLY RESATRTED MY VIEW COUTN BROROO)
 
 ![](https://file.garden/aXu9FpkcPAJchg9c/Pixels/BW/IMG-5817.gif) [Rentry](https://rentry.co/fingerstripes)
 
@@ -7,6 +7,8 @@
 github wip !![](https://64.media.tumblr.com/d18c2dfb9de4a6ffd07f3601398756b6/816d9889aebd2469-e0/s75x75_c1/52650067bd096ab4ffeb3f30c136cd0befdb31e6.gifv)
 
 I COLLECT PINK STAMPS. 16. KYLE. CUTE CROSSDRESSING CISMALE THAT ADORES PINK!!!!! Chronically offline
+
+Kyle is me and I'm kyle. best gl out there Ok
 
 Semi-verbal in public !! 
 
