@@ -1,3 +1,4 @@
+<img width="319" height="450" alt="image" src="https://github.com/user-attachments/assets/bbbd513f-eabc-4857-959b-00dc8bf9ae73" />
 
 ![](https://komarev.com/ghpvc/?username=your-github-throatshot&color=FA6781&label=BULLETS+LEFT&style=flat-square)  (I ACCIDENTALLY RESATRTED MY VIEW COUTN BROROO)
 
