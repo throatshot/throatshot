@@ -8,5 +8,7 @@
   
 ![](https://komarev.com/ghpvc/?username=your-github-throatshot&color=a97249&label=BULLETS+LEFT&style=flat-square)   ㅤㅤㅤㅤ        (ˆ ̳ , ̫ , ̳ˆ)"੭ . .ㅤㅤc+h enc , w2int 
 
+![](https://64.media.tumblr.com/7de49c686d5e12d7d3728498486ee15a/10876e85d05d36b2-90/s75x75_c1/2f5529552494c16b8af569b9e41e051543a6f47f.gifv)      𓎡   Nerd gurl I don't deserve chu T_T... I don't get the references you refer to!
+
 
 
