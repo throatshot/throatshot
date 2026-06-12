@@ -6,9 +6,9 @@
 
 ![](https://64.media.tumblr.com/2d068bfbc071a68baed4082858faa472/9ab36cfb67d17c7e-ea/s500x750/bd23bb4685b6a14ea7ba6b10324c344531bb8334.gifv)
   
-![](https://komarev.com/ghpvc/?username=your-github-throatshot&color=a97249&label=BULLETS+LEFT&style=flat-square)   ㅤㅤㅤㅤ        (ˆ ̳ , ̫ , ̳ˆ)"੭ . .ㅤㅤc+h enc , w2int 
+![](https://komarev.com/ghpvc/?username=your-github-throatshot&color=a97249&label=BULLETS+LEFT&style=flat-square)   ㅤㅤㅤㅤ        𑣲₍ ᐢ. .ᐢ₎ . .ㅤㅤc+h enc , w2int 
 
-![](https://64.media.tumblr.com/7de49c686d5e12d7d3728498486ee15a/10876e85d05d36b2-90/s75x75_c1/2f5529552494c16b8af569b9e41e051543a6f47f.gifv)   
+![](https://64.media.tumblr.com/7de49c686d5e12d7d3728498486ee15a/10876e85d05d36b2-90/s75x75_c1/2f5529552494c16b8af569b9e41e051543a6f47f.gifv)    ໒⁀ ᩧຼㅤㅤㅤ ° ˙︶ㅤㅤㅤ ͝ 
 
   Nerd gurl I don't deserve chu T_T... I don't get the references you refer to!
 
