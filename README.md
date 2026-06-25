@@ -10,7 +10,7 @@
 
 ![](https://64.media.tumblr.com/7de49c686d5e12d7d3728498486ee15a/10876e85d05d36b2-90/s75x75_c1/2f5529552494c16b8af569b9e41e051543a6f47f.gifv)    ໒⁀ ᩧຼㅤㅤㅤ ° ˙︶ㅤㅤㅤ ͝ 
 
-  Nerd gurl I don't deserve chu T_T... I don't get the references you refer to!
+  Nerd grl, I don't deserve you T_T... I don't get the references you refer to!
 
 
 
